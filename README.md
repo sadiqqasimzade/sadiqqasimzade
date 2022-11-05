@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sadiqqasimzade
+- 👀 I’m interested in sleep
+- 🌱 I’m currently learning that snake language
+- 📫 How to reach me is big secret maybe i will tell you next time
